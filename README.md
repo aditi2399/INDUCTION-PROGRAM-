@@ -11,7 +11,15 @@ After a light breakfast, we attended a welcome session in the auditorium. Our Pr
 
 It was a warm and inspiring start to our college life.
 
+# DAY-2
 
+## Day 2: Learning and Assessment
+
+### On 1st August, the second day of our induction began with an insightful session on Universal Human Values by Dr. Priya Dhir, where we learned about ethics, empathy, and self-awareness.
+
+Following this, Dr. Arvind guided us about STAPS and also introduced us to the Training and Placement Cell (TPC), explaining its importance for our future career.
+
+The day concluded with two proficiency tests in English and Maths, helping assess our current level and prepare us for upcoming academics.
 
 
 
