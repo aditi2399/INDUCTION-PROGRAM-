@@ -22,4 +22,15 @@ Following this, Dr. Arvind guided us about STAPS and also introduced us to the T
 The day concluded with two proficiency tests in English and Maths, helping assess our current level and prepare us for upcoming academics.
 
 
+# Day-3
+
+## Day 3: Guidance and Interaction
+
+### On 4th August, the day began with an interactive session by the Causmic club team, who shared inspiring messages and experiences.
+
+This was followed by a lecture from Dr. Randhir on the Conduction of Examinations, where we learned about the exam structure and rules.
+
+Later, Dr. Priya Dhir continued with Part 2 of Universal Human Values, helping us understand deeper aspects of personal growth.
+
+The day ended with engaging classes in English and P2P (Peer-to-Peer) sessions conducted by our seniors, which gave us a chance to interact and learn informally.
 
